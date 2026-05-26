@@ -1,4 +1,4 @@
-# Diferen-a-da-Gest-o-de-Sa-de-nos-Estados-Unidos-Canad-e-Jap-o
+gestao-saude-eua-canada-japao
 Gestão de saúde 
 Pesquisa: Diferença da Gestão de Saúde nos Estados Unidos, Canadá e Japão
 
